@@ -4,4 +4,4 @@ went to the gym, i was talking about my EV with my trainer lol answering some ne
 
 brunch has been moved to a late lunch but its still going to take me 2+ hours to get ready, kind of busy with that today, have to work out and work on my code today as well, had a weird dream oh well, about to watch a podcast with my brother then its time to sleeppp
 
-nice day today, going to the mall after work with my brother, hes looking for a rain jacket lol
+nice day today, going to the mall after work with my brother, hes looking for a rain jacket lol https://www.instagram.com/reel/C7J1OZhOkOv/ trueee
