@@ -7,3 +7,5 @@ brunch has been moved to a late lunch but its still going to take me 2+ hours to
 nice day today, going to the mall after work with my brother, hes looking for a rain jacket lol https://www.instagram.com/reel/C7J1OZhOkOv/ trueee
 
 boring day, looking for probiotics on amazon now
+
+def watching the garfield movie tmr cant wait
