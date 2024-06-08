@@ -9,3 +9,5 @@ nice day today, going to the mall after work with my brother, hes looking for a 
 boring day, looking for probiotics on amazon now
 
 def watching the garfield movie tmr cant wait
+
+applying to this posiiton https://careers.mskcc.org/vacancies/2024-77890-bioinformatics-software-engineer-iv/ bc i was a bioinformatician iii now i can level up to a iv 🥹
