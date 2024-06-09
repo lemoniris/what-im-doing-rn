@@ -17,3 +17,6 @@ we had an electrician come in to today and set up the level 2 charger for my car
 im playing sims 4 bc im so bored and its the weekend and i have no plans for the day i think ... might go to the gym later
 
 this is good https://www.youtube.com/watch?v=mbmR6SwEeOg her new album is great https://en.wikipedia.org/wiki/Night_Reign the whole thing
+
+https://x.com/paik_michael/status/1799826711875563539 🥳 same-ish bc its summer
+and the sun is out
