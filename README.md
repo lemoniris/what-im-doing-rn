@@ -15,3 +15,5 @@ applying to this posiiton https://careers.mskcc.org/vacancies/2024-77890-bioinfo
 we had an electrician come in to today and set up the level 2 charger for my car, instead of charging for 2+ days on level 1 charging, it charges in 7 hrs in level 2 charging which is great
 
 im playing sims 4 bc im so bored and its the weekend and i have no plans for the day i think ... might go to the gym later
+
+this is good https://www.youtube.com/watch?v=mbmR6SwEeOg her new album is great https://en.wikipedia.org/wiki/Night_Reign the whole thing
