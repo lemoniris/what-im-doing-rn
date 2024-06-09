@@ -20,3 +20,5 @@ this is good https://www.youtube.com/watch?v=mbmR6SwEeOg her new album is great 
 
 https://x.com/paik_michael/status/1799826711875563539 🥳 same-ish bc its summer
 and the sun is out
+
+i built us, well two people very close to us, in the sims 4 LOL theyre two programmers that live together in peace i dunno i was bored
