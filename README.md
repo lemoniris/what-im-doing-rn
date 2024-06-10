@@ -22,3 +22,7 @@ https://x.com/paik_michael/status/1799826711875563539 🥳 same-ish bc its summe
 and the sun is out
 
 i built us, well two people very close to us, in the sims 4 LOL theyre two programmers that live together in peace i dunno i was bored
+
+worked out, sleep after isha
+
+im going to work on my leetcode stuff this summer again
