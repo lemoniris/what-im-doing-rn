@@ -1,5 +1,8 @@
 # what-im-doing-rn
 
+- [ ]  add some python solved probems, like puzzles, to githubm, summer 2024
+
+<!--
 went to the gym, i was talking about my EV with my trainer lol answering some nerd-level questions, biked and now im listening to a nonfiction audiobook while walking, tomorrow i have a brunch to go to that i have to get ready for today 🥹 working on some code after walking #boringday #boringweekend 6,598 steps so far, got through an hour of my audiobook, getting ready to go outtt with my parents doing some random things, we decided on going to a food truck festival at the beach but its raining 🥹 got some halal nachos, total steps today: 8,586
 
 brunch has been moved to a late lunch but its still going to take me 2+ hours to get ready, kind of busy with that today, have to work out and work on my code today as well, had a weird dream oh well, about to watch a podcast with my brother then its time to sleeppp
@@ -26,3 +29,4 @@ i built us, well two people very close to us, in the sims 4 LOL theyre two progr
 worked out, sleep after isha
 
 im going to work on my leetcode stuff this summer again
+-->
