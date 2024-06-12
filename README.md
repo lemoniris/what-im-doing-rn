@@ -33,4 +33,6 @@ im going to work on my leetcode stuff this summer again
 work & trying to finish that app today, ive interviewed with mskcc before in like 2017 or 2018 but i dunno what happened
 
 so sleepy, what a long day somehow
+
+my license plates still havent arrived yet, i keep calling the dealership in bk and theyre like, theres apparently a processing delay from the nj dmv 🥹
 -->
