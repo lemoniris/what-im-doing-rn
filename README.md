@@ -31,4 +31,6 @@ worked out, sleep after isha
 im going to work on my leetcode stuff this summer again
 
 work & trying to finish that app today, ive interviewed with mskcc before in like 2017 or 2018 but i dunno what happened
+
+so sleepy, what a long day somehow
 -->
