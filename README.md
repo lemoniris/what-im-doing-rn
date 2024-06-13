@@ -35,4 +35,6 @@ work & trying to finish that app today, ive interviewed with mskcc before in lik
 so sleepy, what a long day somehow
 
 my license plates still havent arrived yet, i keep calling the dealership in bk and theyre like, theres apparently a processing delay from the nj dmv 🥹
+
+im starting a rust course!! thats my thing for this summer, learn more rust
 -->
