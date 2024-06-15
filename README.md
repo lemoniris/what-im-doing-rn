@@ -48,4 +48,6 @@ https://x.com/y2shaf/status/1801658696956620967 exactlyyyyy
 
 re-ordering some fermented cod liver capsules on amazon and some pool thingsss
 
+listening to this https://www.youtube.com/watch?v=G5LehNBNcV4 for 4 hours this weekend, eid is tomorrow, got new valentino sandals (https://www.mytheresa.com/us/en/women/valentino-garavani-roman-stud-leather-sandals-black-p00640063), we have people coming over tomorroww, bbq later, trying to go to the city to get some biscoff cake tomorrow maybe
+
 -->
