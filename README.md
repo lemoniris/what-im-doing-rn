@@ -44,4 +44,6 @@ https://x.com/nymetrowx/status/1801623034723193166
 
 is it really going to be 100 degrees next friday wowww
 
+https://x.com/y2shaf/status/1801658696956620967 exactlyyyyy
+
 -->
