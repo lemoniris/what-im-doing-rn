@@ -40,4 +40,8 @@ im starting a rust course!! thats my thing for this summer, learn more rust
 
 ordered pizza delivery, eid is on sundayyy
 
+https://x.com/nymetrowx/status/1801623034723193166
+
+is it really going to be 100 degrees next friday wowww
+
 -->
