@@ -54,4 +54,7 @@ i returned the chloe gladiator sandals bc they were sooo uncomfortable, valentin
 
 eiddd mubarakk what a nice dayy it is outside
 
+went to the pool store 3x today lol, wrong size and etc; apparently they dont care if cars dont have license plates on the front anymore in nj which is great, ill
+skip putting a plate in the front too ... that is when my plates actually arrive, its been over a month and they still havent
+
 -->
