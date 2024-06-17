@@ -59,4 +59,6 @@ skip putting a plate in the front too ... that is when my plates actually arrive
 
 my dad ordered oatmilk through the drive thru today by saying "oatmeal" 😂😂😂
 
+did some rust today from the course i got which is really great, pool laterr
+
 -->
