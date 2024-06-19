@@ -63,5 +63,5 @@ did some rust today from the course i got which is really great, pool laterr
 
 getting bubble tea with my cousins who are overr
 
-
+mushroom pho and pool laterr, more rust tomorrow, calling about when my license plates will get to me ... again
 -->
