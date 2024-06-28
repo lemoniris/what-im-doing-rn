@@ -67,4 +67,6 @@ mushroom pho and pool laterr, more rust tomorrow, calling about when my license 
 
 i got like mosquito bites yesterday, it seems like this heat wave is done for now i think
 
+https://x.com/marosakhi/status/1806107748314046818
+
 -->
