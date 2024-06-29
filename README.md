@@ -69,4 +69,6 @@ i got like mosquito bites yesterday, it seems like this heat wave is done for no
 
 https://x.com/marosakhi/status/1806107748314046818
 
+gymm, kind of humid today, watching a TED talk my brother's phd advisor shared that he liked, doing a little bit of work today then pool then out to dinnerr
+
 -->
