@@ -71,4 +71,6 @@ https://x.com/marosakhi/status/1806107748314046818
 
 gymm, kind of humid today, watching a TED talk my brother's phd advisor shared that he liked, doing a little bit of work today then pool then out to dinnerr
 
+my brother is done with his phd at umd cs this summer/fall which is greattt bc then we will celebrate by taking a trip somewhere ... maybe dubai
+
 -->
