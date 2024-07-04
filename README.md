@@ -77,4 +77,6 @@ watching gattaca with my brother bc ive never seen it, we were at wawa earlier g
 
 theres so much smoking cigs in gattaca already and no electric vehicles "its not gattaca its emphysema" and omg she gets a printed dna sequence of the guy lolll how is that helpful
 
+https://www.instagram.com/ciaoamberc/reel/C6KI3V-Sfsp/ trueeee
+
 -->
