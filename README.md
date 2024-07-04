@@ -73,4 +73,6 @@ gymm, kind of humid today, watching a TED talk my brother's phd advisor shared t
 
 my brother is done with his phd at umd cs this summer/fall which is greattt bc then we will celebrate by taking a trip somewhere ... maybe dubai
 
+watching gattaca with my brother bc ive never seen it, we were at wawa earlier getting coffee and this guy walked in who looked just like walter white from breaking bad and my brother could not stop laughing huehuehuehuehahahahaha sooo dumbbbb he said he hasnt laughed that hard in a while LOL okay dude its not that funnyyyyy or is it, he kept saying "we were meant to come to wawa at this time to see walter white!!" okayyy bruhhh, ive never seen breaking bad either and maybe ill watch it this summer, i like tv thats good, i liked succession
+
 -->
