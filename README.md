@@ -79,4 +79,6 @@ theres so much smoking cigs in gattaca already and no electric vehicles "its not
 
 https://www.instagram.com/ciaoamberc/reel/C6KI3V-Sfsp/ trueeee
 
+going out to see the fireworks ... is it going to rain, is that going to ruin my hair and makeup, do i need an umbrella -- everything is just so complicated
+
 -->
