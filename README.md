@@ -83,4 +83,6 @@ going out to see the fireworks ... is it going to rain, is that going to ruin my
 
 im out to dinner with my parents in philly and i just am so glad it never worked out here for me, i could never move back ever, i got some lamb maroosh to go though, tomorrow im in nyc to do nothing but walk around with my brother, museums and restaurants and ice cream the whole entire dayyy
 
+i think im going to switch to brown lowlights after the summer, that picture is from 2021, yeahhh thats what im going to do
+
 -->
