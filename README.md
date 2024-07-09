@@ -85,4 +85,13 @@ im out to dinner with my parents in philly and i just am so glad it never worked
 
 i think im going to switch to brown lowlights after the summer, that picture is from 2021, yeahhh thats what im going to do
 
+https://www.youtube.com/watch?v=LLc_uu5HpcA this song has been in my head all summer long i want to write about it sometime
+
+it translates to 
+
+My heart, you are a traveler
+Life is a journey
+Who knows where your destination is
+
+its a good introspective 90s song lolll
 -->
