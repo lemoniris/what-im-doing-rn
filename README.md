@@ -94,6 +94,8 @@ Life is a journey
 Who knows where your destination is
 
 its a good introspective 90s song lolll
+
+im so annoyed that rosalind problem isnt outputting the correct answer, sooo annoyed, ill get it tomorrow i hope, maybe ill write a blog post about the correct solution afterwards
 -->
 
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
