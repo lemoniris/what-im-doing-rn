@@ -99,5 +99,7 @@ im so annoyed that rosalind problem isnt outputting the correct answer, sooo ann
 
 rain today i guess no pool later
 
+https://www.youtube.com/watch?v=F9t607v-TDU my fav song of this summer, good driving music, trying to not think about this mskcc interview thats next week all weekend
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
