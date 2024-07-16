@@ -101,7 +101,7 @@ rain today i guess no pool later
 
 https://www.youtube.com/watch?v=F9t607v-TDU my fav song of this summer, good driving music, trying to not think about this mskcc interview thats next week all weekend
 
-busy preparing for another bioinfo interview elsewhere not in ny but its remote and i would get stock options
+busy preparing for another bioinfo interview elsewhere not in ny but its remote and i would get stock options, i kind of like this position more than mskcc, a little bit more i guess, bc the lead for the comp bio team is a prof at dartmouth and it has to do with protein bioinfo, lets see what happensss
 
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
