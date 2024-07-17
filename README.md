@@ -103,5 +103,7 @@ https://www.youtube.com/watch?v=F9t607v-TDU my fav song of this summer, good dri
 
 busy preparing for another bioinfo interview elsewhere not in ny but its remote and i would get stock options, i kind of like this position more than mskcc, a little bit more i guess, bc the lead for the comp bio team is a prof at dartmouth and it has to do with protein bioinfo, lets see what happensss
 
+i scheduled both interviews at two diff places, mskcc and the biopharm company with stock options, for friday so i only have to dress up once for the zoom interviews, lol, im excited, interviews dont stress me out or anything i just dont like working with shitty/low quality people, i think both of these places are good options, the dartmouth prof is a cs prof it seems ... in bioinformatics, interesting bc they are the comp bio team lead
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
