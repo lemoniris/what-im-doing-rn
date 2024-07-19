@@ -105,5 +105,7 @@ busy preparing for another bioinfo interview elsewhere not in ny but its remote 
 
 i scheduled both interviews at two diff places, mskcc and the biopharm company with stock options, for friday so i only have to dress up once for the zoom interviews, lol, im excited, interviews dont stress me out or anything i just dont like working with shitty/low quality people, i think both of these places are good options, the dartmouth prof is a cs prof it seems ... in bioinformatics, interesting bc they are the comp bio team lead
 
+the other interview was with the biopharma company for a bioinfo posiiton, next interview will be with the dartmouth prof, it looks like an interesting position, ive never been to NH but they said some company meetings will be there in person but the company would pay for hotels and etc. interesting day, i think i like mskcc a little bit more but i dunno maybe its too early to tell rn
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
