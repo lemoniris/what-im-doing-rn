@@ -107,5 +107,7 @@ i scheduled both interviews at two diff places, mskcc and the biopharm company w
 
 the other interview was with the biopharma company for a bioinfo posiiton, next interview will be with the dartmouth prof, it looks like an interesting position, ive never been to NH but they said some company meetings will be there in person but the company would pay for hotels and etc. interesting day, i think i like mskcc a little bit more but i dunno maybe its too early to tell rn
 
+watching breaking bad with my brother who has already seen it when it came out, interesting show, it use to be on when we were at rutgers
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
