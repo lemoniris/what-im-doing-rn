@@ -109,6 +109,8 @@ the other interview was with the biopharma company for a bioinfo posiiton, next 
 
 watching breaking bad with my brother who has already seen it when it came out, interesting show, it use to be on when we were at rutgers
 
+Untitled.ipynb, Untitled1.ipynb, Untitled2.ipynb and etc. kind of summer
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
