@@ -115,6 +115,8 @@ we got an autonomous pool robot thats cleaning the algae in the pool
 
 theres a new turkish bakery that opened in the next town over, maybeeee we'll go there this weekend
 
+cant believe its august already tomorrowwww
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
