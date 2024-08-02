@@ -117,6 +117,8 @@ theres a new turkish bakery that opened in the next town over, maybeeee we'll go
 
 cant believe its august already tomorrowwww
 
+eating ice cream bc its still summer 🥹
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
