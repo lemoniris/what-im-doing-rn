@@ -131,3 +131,5 @@ https://www.instagram.com/reel/C9SbFcou4co/ wow interesting
 https://youtu.be/0p5Eb4OSZCs whoaa very interesting
 
 https://www.tiktok.com/t/ZPRofsuhj/ "a lot of geoguessr is memorizing useless facts" isnt this true with other domains too
+
+https://www.instagram.com/reel/C-QoWGyS-Tp/ wowww interesting
