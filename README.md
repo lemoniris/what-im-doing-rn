@@ -139,3 +139,5 @@ https://www.tiktok.com/t/ZPRofsuhj/ "a lot of geoguessr is memorizing useless fa
 https://www.instagram.com/reel/C-QoWGyS-Tp/ wowww interesting
 
 https://www.youtube.com/watch?v=jwhDym1bRmY interesting sport
+
+https://www.youtube.com/watch?v=GuY-2sHJYhg -- haniya of zeb & haniya passed away, i wanted to see them live one day awww
