@@ -129,6 +129,8 @@ i spent the day in north jersey, this lady at neiman marcus sprayed this on me a
 it has to be a little sweeter, on the fence, wore black to korean bbq bc i always get it on me its so messy, https://youtu.be/VyGNryifd0E in the long drive back loll https://www.laduree.us/530744/ispahan they had the latte, which was so good, but not the actual macaron 
 in the north jersey location, i wonder if they have it in the madison ave location ughhh i love rose anythingg https://youtu.be/KaM1bCuG4xo cant believe august is half way done
 
+iceee cream 🍦
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
