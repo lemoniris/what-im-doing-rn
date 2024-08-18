@@ -125,6 +125,9 @@ woww its really like pouring rain outside almost all day, i think theres more ra
 
 i want iced chai thats what im gonna get or make this weekend
 
+i spent the day in north jersey, this lady at neiman marcus sprayed this on me and it smells so good but i like something sweeter https://us.initioparfums.com/products/atomic-rose i wanna smell it again or i might just get it, she said it has turkish rose, i dunno like
+it has to be a little sweeter, on the fence, wore black to korean bbq bc i always get it on me its so messy, https://youtu.be/VyGNryifd0E in the long drive back loll
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
