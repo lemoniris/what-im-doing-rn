@@ -131,6 +131,8 @@ in the north jersey location, i wonder if they have it in the madison ave locati
 
 iceee cream 🍦
 
+individually wrapped dark chocolate pieces ... soo good 😍 dark chocolate >>> milk chocolate
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
