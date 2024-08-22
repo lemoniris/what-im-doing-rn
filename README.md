@@ -137,7 +137,7 @@ https://x.com/internethippo/status/1825977875218182615 lolll
 
 u know i was trying to learn more about a controversial science topic via youtube this week (i.e. lectures and podcasts) and i guess the truth is relative?? but im pro that thing and people make really convincing anti that thing arguments, i guess if one is more illinformed and myopic, they would also have an anti view of that thing as well. i guess one can be knowledgeable and right or wrong, illinformed and right or wrong, so is the truth really relative, noo ... its based on evidence, but evidence can be right and wrong, logic can be right and wrong, intentions can be right or wrong and etc. for science ... i think now, people learn first from podcasts then lectures/audiobooks, but they can be annoying if there's a lot of small talk in the middle ... getting introduced to a new topic is through a podcast nowadays, i guess or a blog or reddit
 
-out to dinner with my parents in nyc the weather is so niceee saw a huge cockroach grosssss
+out to dinner with my parents in nyc the weather is so niceee saw a huge cockroach on the sidewalk grosssss; hope this night ends in warm chai 🥹
 
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
