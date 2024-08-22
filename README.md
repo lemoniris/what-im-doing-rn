@@ -139,6 +139,8 @@ u know i was trying to learn more about a controversial science topic via youtub
 
 out to dinner with my parents in nyc the weather is so niceee saw a huge cockroach on the sidewalk grosssss; hope this night ends in warm chai 🥹
 
+https://x.com/CristobMorales/status/1825850123194110223 this is such a big deal esp since its just a peptide
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
