@@ -163,3 +163,5 @@ https://www.youtube.com/watch?v=GuY-2sHJYhg -- haniya of zeb & haniya passed awa
 https://petergabriel.com/news/lost-album-by-the-late-nusrat-fateh-ali-khan/ wow theres an unreleased NFAK album thats going to come out sep 20th
 
 https://www.instagram.com/reel/C-3M8ToSLth potatoes 🥔 
+
+https://www.instagram.com/reel/C--gGvWJ6hg loll so true in meetings
