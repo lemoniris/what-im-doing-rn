@@ -141,6 +141,8 @@ out to dinner with my parents in nyc the weather is so niceee saw a huge cockroa
 
 https://x.com/CristobMorales/status/1825850123194110223 this is such a big deal esp since its just a peptide
 
+i ordered these cow slippers from tiktok shop for $5 and i want them to come in the mail like as soon as possible loll cant wait theyre black and white
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
