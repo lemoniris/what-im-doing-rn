@@ -145,6 +145,8 @@ i ordered these cow slippers from tiktok shop for $5 and i want them to come in 
 
 gym + whole foods sushi
 
+i was driving and listening to this album from 2011 https://en.wikipedia.org/wiki/Every_Kingdom soo good
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
