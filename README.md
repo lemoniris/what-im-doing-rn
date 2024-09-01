@@ -147,6 +147,8 @@ gym + whole foods sushi
 
 i was driving and listening to this album from 2011 https://en.wikipedia.org/wiki/Every_Kingdom soo good
 
+went to the mall today and then did some errands, day off tomorrow
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
