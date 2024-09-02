@@ -149,6 +149,8 @@ i was driving and listening to this album from 2011 https://en.wikipedia.org/wik
 
 went to the mall today and then did some errands, day off tomorrow
 
+catching up on some reading today, im also reading https://en.wikipedia.org/wiki/Fast_Food_Nation, doing something later bc its such a nice day, taking out my fall boots from the garage
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
