@@ -153,6 +153,8 @@ catching up on some reading today, im also reading https://en.wikipedia.org/wiki
 
 still at the beach 😍 sea breezeeeeyyyy
 
+i had to do my blood work this morning, i always dread it bc i dont like needles, ive been doing intermittent fasting 16:8 since the summer so i want to see how it improves, trying to get back into rust again this month
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
