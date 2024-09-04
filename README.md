@@ -155,6 +155,8 @@ still at the beach 😍 sea breezeeeeyyyy
 
 i had to do my blood work this morning, i always dread it bc i dont like needles, ive been doing intermittent fasting 16:8 since the summer so i want to see how it improves, trying to get back into rust again this month
 
+my blood work results came back, thyroid and A1c are all good and normal, cholesterol is a bit on the high end ... working on that with the intermittent fasting ... Alhamdulillah what i was dreading turned out to be fine, my A1c needs to be lower tho ... sometimes i make a big deal out of things, i wanna go to an allergy doc and get tested for allergies bc my nose is runny sometimes for no reason
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
