@@ -159,6 +159,8 @@ my blood work results came back, thyroid and A1c are all good and normal, choles
 
 https://www.youtube.com/watch?v=JS2wnyCATRM sometimes i listen to country music lol ...
 
+gym + sushi + salad
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
