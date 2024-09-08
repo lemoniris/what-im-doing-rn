@@ -161,6 +161,8 @@ https://www.youtube.com/watch?v=JS2wnyCATRM sometimes i listen to country music 
 
 gym + sushi + salad
 
+chilly morning, watching/listening to a health podcast about intermittent fasting
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
