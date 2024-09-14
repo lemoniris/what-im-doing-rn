@@ -163,6 +163,8 @@ gym + sushi + salad
 
 chilly morning, watching/listening to a health podcast about intermittent fasting
 
+watching some health podcasts
+
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
 
