@@ -182,7 +182,7 @@ https://www.youtube.com/watch?v=jwhDym1bRmY interesting sport
 
 https://www.youtube.com/watch?v=GuY-2sHJYhg -- haniya of zeb & haniya passed away, i wanted to see them live one day awww
 
-https://petergabriel.com/news/lost-album-by-the-late-nusrat-fateh-ali-khan/ wow theres an unreleased NFAK album thats going to come out sep 20th
+https://petergabriel.com/news/lost-album-by-the-late-nusrat-fateh-ali-khan/ wow theres an unreleased NFAK album thats going to come out sep 20th; its out and i listened to it a little bit
 
 https://www.instagram.com/reel/C-3M8ToSLth potatoes 🥔 
 
