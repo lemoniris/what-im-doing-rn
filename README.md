@@ -165,7 +165,7 @@ chilly morning, watching/listening to a health podcast about intermittent fastin
 
 watching some health podcasts
 
-my brother was in crete/santorini last week for a health conference where he presented, we should go to santorini one day it looks so nice 🥹
+my brother was in crete/santorini last week for a health conference where he presented, we should go to santorini one day it looks so nice 🥹 "europeans are unhealthy, they smoke a lot and they dont really work out that much" - my brother
 
 -->
 https://www.instagram.com/reel/C9SwvpRpcd6/ ohhh i want to make this one day, tiramisu from scratch 🤩
