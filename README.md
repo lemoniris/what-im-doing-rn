@@ -195,3 +195,5 @@ https://www.technologyreview.com/2024/08/22/1097224/we-finally-have-a-definition
 https://www.instagram.com/reel/C_lNuQPOlAo/ woww thats a lot
 
 https://x.com/nikomccarty/status/1836097068089381215 🤩
+
+https://notebooklm.google makes reading papers a little bit more interestinggg
