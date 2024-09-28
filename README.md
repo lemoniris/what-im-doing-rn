@@ -197,3 +197,5 @@ https://www.instagram.com/reel/C_lNuQPOlAo/ woww thats a lot
 https://x.com/nikomccarty/status/1836097068089381215 🤩
 
 https://notebooklm.google makes reading papers a little bit more interestinggg
+
+https://www.tiktok.com/t/ZP8RxjpC3/ yeahh exactlyy
